@@ -1,1 +1,1 @@
-# poczatki
+# Kosmetyki z kuchennej półki
