@@ -23,5 +23,11 @@ Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy nask�
 Do fusów od kawy (może być także zmielona kawa prosto z paczki), należy dodać troszkę oleju kokosowego (lub innego według uznania) i powstałą papką masuj parę minut całe ciało, a także delikatnie twarz.
 Nie dość, że peeling skutecznie złuszcza naskórek to dodatkowo pozostawia skórę lekko natłuszczoną, jedwabistą i jędrną.
 
+
+4.Tonik octowy. 
+
+Do 100 ml wody mineralnej dodajemy 5 ml octu jabłkowego. Taki tonik dobrze oczyszcza cerę, zakwasza skórę po użyciu mocniejszych detergentów. Pozwala naszej skórze na zachowanie odpowiedniego ph. Nie wysusza, nie ściąga, buzia po jego użyciu jest ładniejsza i miękka. Tonik także świetnie współpracuje z olejkami.
+
+
  
  
