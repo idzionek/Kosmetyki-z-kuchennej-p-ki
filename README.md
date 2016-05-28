@@ -24,10 +24,21 @@ Do fusów od kawy (może być także zmielona kawa prosto z paczki), należy dod
 Nie dość, że peeling skutecznie złuszcza naskórek to dodatkowo pozostawia skórę lekko natłuszczoną, jedwabistą i jędrną.
 
 
-4.Tonik octowy. 
+4.Tonik octowy 
 
 Do 100 ml wody mineralnej dodajemy 5 ml octu jabłkowego. Taki tonik dobrze oczyszcza cerę, zakwasza skórę po użyciu mocniejszych detergentów. Pozwala naszej skórze na zachowanie odpowiedniego ph. Nie wysusza, nie ściąga, buzia po jego użyciu jest ładniejsza i miękka. Tonik także świetnie współpracuje z olejkami.
 
+
+5.Domowe maseczki na włosy
+
+- Włosy zniszczone i suche:
+Na zniszczone i przesuszone włosy najlepsza jest maseczka z trzech łyżeczek majonezu lub żółtka, możesz do niej wycisnąć kilka kropel cytryny lub octu winnego. Mikstura ta nada twoim włosom przyjemną nutkę świeżości i domknie łuski. Rozprowadź maseczkę na umytych, wilgotnych włosach. Pozostaw ją na 10 minut. Następnie spłucz i powtórnie umyj włosy szamponem z balsamem.
+
+- Włosy cienkie i słabe:
+Zmieszaj żółtko z czterema stołowymi łyżkami piwa. Po 15 minutach trzymania papki na zawiniętych w ręcznik włosach, umyj głowę szamponem. Kompres z takiej maseczki wzmocni cienkie włosy, które straciły sprężystość i sprawi, że przestaną się łamać.
+
+- Włosy matowe :
+Połysku twoim włosom doda maseczka z dwóch łyżek naturalnego jogurtu, miodu i jednego żółtka. Zmieszaną papkę trzymaj na wilgotnych i umytych włosach około 10 minut, a potem dokładnie spłucz letnią wodą. Matowe, wypłowiałe włosy już po kilku tygodniach staną się błyszczące.
 
  
  
