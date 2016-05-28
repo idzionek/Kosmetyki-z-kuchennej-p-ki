@@ -18,3 +18,10 @@ Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy nask�
  Wszystko, czego nam potrzeba to łyżeczka cukru (może być brązowy) oraz kilka kropli oliwy z oliwek. Dla poprawy konsystencji można dodać odrobinę wazeliny lub złamanej ochronnej pomadki do ust. Ową miksturę rozprowadzamy na ustach, delikatnie masując, następnie ścieramy wilgotną chusteczką. Kryształki cukru delikatnie złuszczą naskórek, a oliwa z oliwek, dzięki bogactwu witamin – odżywi go. Taki własnoręcznie wykonany kosmetyk możecie przechowywać w niewielkim słoiczku (np. po błyszczyku), najlepiej w lodówce – jego konsystencja będzie bardziej zwarta, ale dłużej zachowa swoje właściwości.
  
  
+3.Peeling kawowy 
+
+Do fusów od kawy (może być także zmielona kawa prosto z paczki), należy dodać troszkę oleju kokosowego (lub innego według uznania) i powstałą papką masuj parę minut całe ciało, a także delikatnie twarz.
+Nie dość, że peeling skutecznie złuszcza naskórek to dodatkowo pozostawia skórę lekko natłuszczoną, jedwabistą i jędrną.
+
+ 
+ 
