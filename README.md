@@ -32,6 +32,8 @@ Do 100 ml wody mineralnej dodajemy 5 ml octu jabłkowego. Taki tonik dobrze oczy
 
 5.Domowe maseczki na włosy
 
+<img class="irc_mi inmReDjcKlCs-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://articles.scaleme.pl/A4FB7EBC/50095/729x410/fixed_canvas_ffffff" width="699" height="393">
+
 - Włosy zniszczone i suche:
 Na zniszczone i przesuszone włosy najlepsza jest maseczka z trzech łyżeczek majonezu lub żółtka, możesz do niej wycisnąć kilka kropel cytryny lub octu winnego. Mikstura ta nada twoim włosom przyjemną nutkę świeżości i domknie łuski. Rozprowadź maseczkę na umytych, wilgotnych włosach. Pozostaw ją na 10 minut. Następnie spłucz i powtórnie umyj włosy szamponem z balsamem.
 
