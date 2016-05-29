@@ -1,6 +1,6 @@
 # Kosmetyki z kuchennej półki
 
-<img class="irc_mi ioYX5Z34O6T0-pQOPx8XEepE" alt="" style="margin-top: 9px;" src="http://data.whicdn.com/images/18095447/flat,550x550,075,f_large.jpg" width="500" height="375">
+<img class="irc_mi ioYX5Z34O6T0-pQOPx8XEepE" alt="" style="margin-top: 9px;" src="http://data.whicdn.com/images/18095447/flat,550x550,075,f_large.jpg" width="400" height="275">
  1. Peeling cynamonowo-makowy
 
 Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy naskórek i jest bardzo  łatwy w przygotowaniu.
@@ -20,7 +20,7 @@ Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy nask�
  
 3.Peeling kawowy 
 
-<img class="irc_mi ipL5Bb4tprLc-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://tipsforwomen.pl/wp-content/uploads/2013/10/DSC_0392.jpg" width="590" height="393">
+<img class="irc_mi ipL5Bb4tprLc-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://tipsforwomen.pl/wp-content/uploads/2013/10/DSC_0392.jpg" width="490" height="293">
 Do fusów od kawy (może być także zmielona kawa prosto z paczki), należy dodać troszkę oleju kokosowego (lub innego według uznania) i powstałą papką masuj parę minut całe ciało, a także delikatnie twarz.
 Nie dość, że peeling skutecznie złuszcza naskórek to dodatkowo pozostawia skórę lekko natłuszczoną, jedwabistą i jędrną.
 
@@ -32,7 +32,7 @@ Do 100 ml wody mineralnej dodajemy 5 ml octu jabłkowego. Taki tonik dobrze oczy
 
 5.Domowe maseczki na włosy
 
-<img class="irc_mi inmReDjcKlCs-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://articles.scaleme.pl/A4FB7EBC/50095/729x410/fixed_canvas_ffffff" width="699" height="393">
+<img class="irc_mi inmReDjcKlCs-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://articles.scaleme.pl/A4FB7EBC/50095/729x410/fixed_canvas_ffffff" width="599" height="293">
 
 - Włosy zniszczone i suche:
 Na zniszczone i przesuszone włosy najlepsza jest maseczka z trzech łyżeczek majonezu lub żółtka, możesz do niej wycisnąć kilka kropel cytryny lub octu winnego. Mikstura ta nada twoim włosom przyjemną nutkę świeżości i domknie łuski. Rozprowadź maseczkę na umytych, wilgotnych włosach. Pozostaw ją na 10 minut. Następnie spłucz i powtórnie umyj włosy szamponem z balsamem.
