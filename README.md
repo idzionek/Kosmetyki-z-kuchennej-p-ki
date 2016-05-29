@@ -1,5 +1,6 @@
 # Kosmetyki z kuchennej półki
 
+<object width="450" height="460"><param name="movie" value="http://backend.deviantart.com/embed/view.swf?1"><param name="flashvars" value="id=36184762&width=1337"><param name="allowScriptAccess" value="always"><embed src="http://backend.deviantart.com/embed/view.swf?1" type="application/x-shockwave-flash" width="450" height="460" flashvars="id=36184762&width=1337" allowscriptaccess="always"></embed></object><br><a href="http://turtledesign.deviantart.com/art/Art-of-Food-Remixed-36184762">Art of Food - Remixed</a> by <span class="username-with-symbol u"><a class="u regular username" href="http://turtledesign.deviantart.com/">turtledesign</a><span class="user-symbol regular" data-quicktip-text="" data-show-tooltip="" data-gruser-type="regular"></span></span> on <a href="http://www.deviantart.com">DeviantArt</a>
 
  1. Peeling cynamonowo-makowy
 
