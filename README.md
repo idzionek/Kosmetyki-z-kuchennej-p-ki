@@ -1,6 +1,6 @@
 # Kosmetyki z kuchennej półki
 
-
+http://data.whicdn.com/images/18095447/flat,550x550,075,f_large.jpg
  1. Peeling cynamonowo-makowy
 
 Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy naskórek i jest bardzo  łatwy w przygotowaniu.
