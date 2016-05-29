@@ -20,6 +20,7 @@ Jest to świetny peeling o ciekawym zapachu, który dobrze złuszcza suchy nask�
  
 3.Peeling kawowy 
 
+<img class="irc_mi ipL5Bb4tprLc-pQOPx8XEepE" alt="" style="margin-top: 0px;" src="http://tipsforwomen.pl/wp-content/uploads/2013/10/DSC_0392.jpg" width="590" height="393">
 Do fusów od kawy (może być także zmielona kawa prosto z paczki), należy dodać troszkę oleju kokosowego (lub innego według uznania) i powstałą papką masuj parę minut całe ciało, a także delikatnie twarz.
 Nie dość, że peeling skutecznie złuszcza naskórek to dodatkowo pozostawia skórę lekko natłuszczoną, jedwabistą i jędrną.
 
